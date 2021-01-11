@@ -1,0 +1,1 @@
+Make a paste of onion , garlic and ginger. Then tomato puree and patatoes with aloo dum masala. it is ready.
